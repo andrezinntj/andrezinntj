@@ -1,10 +1,10 @@
 #andrezin
 - 👋 Hi, I’m @andrezinntj
-- 👀 cursos informatica
-- 🌱 aprendendo mais sobre jogos 
+- 👀 GOSTO DE JOGOS 
+- 🌱 JOGOS DE RPG FPS ESTRATEGIAS 
 -
 - 💞️ ......
-- 📫 pelas redes sociais ..
+- 📫 pelas redes sociais EXEMPLOS:instagram,whatsapp..
 
 <!---
 andrezinntj/andrezinntj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
